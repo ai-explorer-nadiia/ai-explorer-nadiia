@@ -4,7 +4,7 @@
   🌍 Traveler & AI Enthusiast<br>
   💻 Passionate about Java and AI<br>
   🌱 Currently learning AI for enhancing travel experiences<br>
-  📫 Reach me: knadiia07@gmail.com or NadiiaKulykkk on TG
+  📫 Reach me: knadiia07@gmail.com or @NadiiaKulykkk on TG
 </p>
 
 ---
@@ -15,7 +15,7 @@
 - 👀 I’m interested in traveling and exploring AI’s potential to enhance the travel industry  
 - 🌱 I’m currently learning AI and Java  
 - 💞️ I’m looking to collaborate on AI-powered travel apps or cultural exploration projects  
-- 📫 How to reach me: knadiia07@gmail.com or NadiiaKulykkk on TG
+- 📫 How to reach me: knadiia07@gmail.com or @NadiiaKulykkk on TG
 - 😄 Pronouns: she/her  
 - ⚡ Fun fact: I’m on a mission to visit 100 countries before I turn 40!
 
