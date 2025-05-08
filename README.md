@@ -49,4 +49,6 @@
 
 ### 🤝 Let's connect
 
+[@ai-explorer-nadiia](https://github.com/ai-explorer-nadiia/)
+
 Feel free to reach out if you’re interested in AI, traveling, or collaborating on tech solutions for the travel industry!
